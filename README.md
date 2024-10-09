@@ -1,0 +1,1 @@
+# mamd_shop
